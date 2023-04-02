@@ -1,2 +1,1 @@
-# world_thief
-finger in the ass
+steal and don't blush
